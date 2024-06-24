@@ -1,3 +1,3 @@
 # fluffmonkey.github.io
 
-how to become an Alpha male
+how to become an biscuit beaner
